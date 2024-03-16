@@ -1,1 +1,10 @@
 
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/2d41c9e0-d6c5-4909-be4b-a80b345712b6)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/83ab668a-3ef3-4545-8639-d477831cf3c0)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/f73354be-4d02-425f-977a-5cd65396e2e2)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/e1e2d07d-7195-49dc-bf3f-e2a6d35df817)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/799d0e5f-145a-4186-845a-2e0ea9152bd8)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/b8f2a9db-2657-4249-bfac-dddee9ba7866)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/794a9835-6d70-4cb5-9e9a-15df0213ce23)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/c04d8e4c-2c2a-4b5f-a23e-bcee4702cce9)
+![image](https://github.com/Pramod2021-24IT/ML-Projects/assets/95674009/f98c356c-ffc3-4403-97bc-3abbfd0033ca)
